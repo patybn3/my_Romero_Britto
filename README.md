@@ -16,8 +16,11 @@ reasons to choose this painting other than the fact that I liked it.
 My reason for choosing this artist is because I believe he has done a
 phenomenal job in applying cubism to pop art.
 
+## Romero Britto's Evolution piece:
+
 ![romerobrittoevolution](https://user-images.githubusercontent.com/59259041/100962999-8354c480-34f3-11eb-9676-02f24a89dd21.jpg)
 
+## This assignment:
 
 <img width="500" alt="assignment6_patriciaantlitz_00318934" src="https://user-images.githubusercontent.com/59259041/100962923-57d1da00-34f3-11eb-9623-69db57fcaddc.png">
 
